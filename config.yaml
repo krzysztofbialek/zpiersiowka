@@ -1,0 +1,37 @@
+baseURL: "http://example.org/"
+languageCode: "pl"
+title: "Z piersiówką przez świat"
+theme: "parsa"
+params:
+  logo: "img/logo.png"
+  author: "Hodor"
+  homeLayoutToggle: false
+  plugins:
+    css:
+      - URL: plugins/bootstrap/bootstrap.min.css
+      - URL: plugins/slick/slick.css
+      - URL: plugins/themify-icons/themify-icons.css
+    js:
+      - URL: plugins/jQuery/jquery.min.js
+      - URL: plugins/bootstrap/bootstrap.min.js
+      - URL: plugins/slick/slick.min.js
+      - URL: plugins/headroom/headroom.js
+      - URL: plugins/instafeed/instafeed.min.js
+      - URL: plugins/masonry/masonry.js
+      - URL: plugins/reading-time/readingTime.min.js
+      - URL: plugins/smooth-scroll/smooth-scroll.js
+      - URL: plugins/search/fuse.min.js
+      - URL: plugins/search/mark.js
+      - URL: plugins/search/search.js
+  search:
+    enable: false
+  preloader:
+    enable: true
+menu:
+  main:
+    - name: "About"
+      URL: "about"
+      weight: 2
+    - name: "Contact"
+      URL: "contact"
+      weight: 3
