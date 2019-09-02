@@ -1,21 +1,18 @@
 ---
-title: "Grog na Cabo Verde"
-date: 2019-08-31T14:21:37+02:00
-type: 'featured'
-image: 'img/cabo.jpg'
-summary: 'Poproszę grog. Ale to bardzo mocne jest. Wiem.'
-author: 'Hodor'
+title: Grog na Cabo Verde
+date: 2019-08-31T12:21:37.000+00:00
+type: featured
+image: img/cabo.jpg
+summary: Poproszę grog. Ale to bardzo mocne jest. Wiem.
+author: Hodor
 categories:
-  - "Drinking"
-tags: 
-  - "Cabo Verde"
-  - "Grog"
+- Drinking
+tags:
+- Cabo Verde
+- Grog
 
 ---
-
-> Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut
-labore et dolore magna aliqua. Ut enim ad minim veniam, quis nostrud exercitation ullamco laboris nisi ut
-aliquip ex ea commodo consequat. Duis aute irure dolor in reprehenderit in voluptate velit esse cillum
+> Hodor ipsum, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua. Ut enim ad minim veniam, quis nostrud exercitation ullamco laboris nisi ut aliquip ex ea commodo consequat. Duis aute irure dolor in reprehenderit in voluptate velit esse cillum
 
 ![](/img/cabo.jpg)
 
