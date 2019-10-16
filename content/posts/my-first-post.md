@@ -4,7 +4,7 @@ date: 2019-08-31T12:21:37.000+00:00
 type: featured
 image: img/cabo.jpg
 summary: Poproszę grog. Ale to bardzo mocne jest. Wiem.
-author: Hodor
+author: Dwójka Brombo
 categories:
 - Drinking
 tags:
