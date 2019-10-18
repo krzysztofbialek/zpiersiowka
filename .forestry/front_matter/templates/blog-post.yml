@@ -27,4 +27,5 @@ fields:
   name: tags
   label: tags
 pages:
+- content/posts/post-dla-kicici.md
 - content/posts/kokoko.md
