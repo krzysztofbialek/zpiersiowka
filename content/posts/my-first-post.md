@@ -15,6 +15,7 @@ tags:
 > ![](/uploads/cabo-verde-2018-11_012.jpg)Hodor Hodor ipsum, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua. Ut enim ad minim veniam, quis nostrud exercitation ullamco laboris nisi ut aliquip ex ea commodo consequat. Duis aute irure dolor in reprehenderit in voluptate velit esse cillum
 
 ![](/img/cabo.jpg)
+![](/uploads/11AEA81B-CE9D-456F-BF4F-BF7A9F52C5BE.jpeg)
 
 Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor incididunt ut labore et
 dolore magna aliqua. Ut enim ad minim veniam, quis nostrud exercitation ullamco laboris nisi ut aliquip ex
