@@ -23,7 +23,7 @@ A z tego wszystkiego najbardziej podobała nam się wariacja na temat arabskich 
 
 ![](/uploads/CPR_0609_2.jpg)
 
-Pokaz fontann przed Dubai Mall nie należał do najlepszych jakie widzieliśmy. Krótko i mało ciekawie. Za to całkiem przyjemnie prezentowała się cała okolica po zmierzchu. Oświetlone drapacze chmur mogą być piękne. Na wjazd na Burdż Kalifa zdecydowaliśmy się o świcie. Wschód słońca, chmury otulające szczyty budynków -  spektakularny widok. Warto było zrywać się łóżka w środku nocy. (FOTO Z BURDZA)
+Pokaz fontann przed Dubai Mall nie należał do najlepszych jakie widzieliśmy. Krótko i mało ciekawie. Za to całkiem przyjemnie prezentowała się cała okolica po zmierzchu. Oświetlone drapacze chmur mogą być piękne. Na wjazd na Burdż Kalifa zdecydowaliśmy się o świcie. Wschód słońca, chmury otulające szczyty budynków -  spektakularny widok. Warto było zrywać się łóżka w środku nocy.
 
 ![](/uploads/burj_wschod.jpg)
 
