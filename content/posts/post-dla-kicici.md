@@ -32,8 +32,7 @@ Pokaz fontann przed Dubai Mall nie należał do najlepszych jakie widzieliśmy. 
 ![](/uploads/burj_wioska.jpg)
 
 Po Dubaju przemieszczailiśmy się metrem - tanio, szybko, czysto, chłodno. Co jedliśmy ciekawego? Miało być mięso z wielbłąda, ale się nie udało. Za to było mleko. Ciekawe w smaku - raczej nie słodkie, bardziej słone, o lekko karmelowym aromacie. Lody na bazie wielbłądziego mleka były bardzo smaczne.
+
 I ostatni rzut oka na Dubaj - wieczorny spacer po marinie.
 
 ![](/uploads/F43A90B6-3F13-4BD9-8CC8-947A043D1FA8.jpeg)
-
-
