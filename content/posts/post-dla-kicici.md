@@ -2,7 +2,7 @@
 author = ""
 categories = []
 date = "2019-10-18T20:00:00+00:00"
-image = "/uploads/F43A90B6-3F13-4BD9-8CC8-947A043D1FA8.jpeg"
+image = "/uploads/758B2327-E3B3-4575-B5D8-8B4BFE28C517.jpeg"
 summary = "Pustynia i drapacze chmur"
 tags = []
 title = "Dubaj"
