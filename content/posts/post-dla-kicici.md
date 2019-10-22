@@ -2,7 +2,6 @@
 author = ""
 categories = []
 date = "2019-10-18T20:00:00+00:00"
-draft = true
 image = "/uploads/F43A90B6-3F13-4BD9-8CC8-947A043D1FA8.jpeg"
 summary = "Pustynia i drapacze chmur"
 tags = []
