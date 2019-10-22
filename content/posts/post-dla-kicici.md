@@ -19,15 +19,15 @@ Mając niewiele czasu na posmakowanie Dubaju, który jest tylko przystankiem w p
 
 ![](/uploads/CPR_0608.jpg)
 
-A z tego wszystkiego najbardziej podobała nam się wariacja na temat arabskich pączków lokma - pyyyyszności! 
+A z tego wszystkiego najbardziej podobała nam się wariacja na temat arabskich pączków lokma - pyyyyszności!
 
 ![](/uploads/CPR_0609_2.jpg)
 
-Pokaz fontann przed Dubai Mall nie należał do najlepszych jakie widzieliśmy. Krótko i mało ciekawie. Za to całkiem przyjemnie prezentowała się cała okolica po zmierzchu. Oświetlone drapacze chmur mogą być piękne. Na wjazd na Burdż Kalifa zdecydowaliśmy się o świcie. Wschód słońca, chmury otulające szczyty budynków -  spektakularny widok. Warto było zrywać się łóżka w środku nocy. (FOTO Z BURDZA) 
+Pokaz fontann przed Dubai Mall nie należał do najlepszych jakie widzieliśmy. Krótko i mało ciekawie. Za to całkiem przyjemnie prezentowała się cała okolica po zmierzchu. Oświetlone drapacze chmur mogą być piękne. Na wjazd na Burdż Kalifa zdecydowaliśmy się o świcie. Wschód słońca, chmury otulające szczyty budynków -  spektakularny widok. Warto było zrywać się łóżka w środku nocy. (FOTO Z BURDZA)
 
 ![](/uploads/burj_wschod.jpg)
 
-![](/uploads/burj_budyni.jpg)
+![](/uploads/burj_budynki.jpg)
 
 ![](/uploads/burj_wioska.jpg)
 
