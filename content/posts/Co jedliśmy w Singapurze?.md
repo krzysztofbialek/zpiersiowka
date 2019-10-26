@@ -34,9 +34,13 @@ A co  do picia? Najczęściej sok z trzciny cukrowej. Orzeźwiający, delikatnie
 
 Typowo singapurskim daniem są kaya tosty. Tościki z dżemem kokosowym (kaya) oraz masłem. Czy może być coś pyszniejszego?!
 
+![](/uploads/20191021_155329.jpg)
+
 W ramach różnych doświadczeń kulinarnych wybraliśmy się na nietypowe śniadanie - do zoo. Śniadanie z orangutanami organizuje singapurski ogród zoologiczny. Karmienie orangutanów odbywa się w restauracji, w której serwowanie jest śniadanie. Bardzo przyjemne doświadczenie. FOTO MAŁPY
 
-Słodycze w Singapurze nie zachwyciły, bo deserki z mleka sojowego albo słodkiej fasoli nie były jakoś wybitnie smaczne. Jedynym pysznym punktem była restauracja specjalizująca się w matchy. Brownie i tiramisu były naprawdę świetne! FOTO DESERKI
+Słodycze w Singapurze nie zachwyciły, bo deserki z mleka sojowego albo słodkiej fasoli nie były jakoś wybitnie smaczne. Jedynym pysznym punktem była restauracja specjalizująca się w matchy. Brownie i tiramisu były naprawdę świetne! 
+
+![](/uploads/20191023_005241.jpg)
 
 W programie kulinarnych doświadczeń znalazła się też atrakcja dla dużych dzieci - kawiarnia z superbohaterami. Dużo radości. FOTO KAWIARNIA
 
