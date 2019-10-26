@@ -18,7 +18,9 @@ Jedzenie jest zawsze jednym z najważniejszych punktów naszego podróżowania, 
 
 ![](/uploads/ASI_0808-1.jpg)
 
-FOTO KURCZAK, FOTO BUDA I ANTHONY.  Skusiliśmy się też na coś bardziej kontrowersyjnego - na owsiankę z żabą. Danie okazało się bardzo smaczne. Owsianka smakowała jak delikatny, bardzo gęsty krupnik, a mięso żabie też było bardzo delikatne. FOTO ŻABA A co  do picia? Najczęściej sok z trzciny cukrowej. Orzeźwiający, delikatnie słodki. Kawkę w Singapurze też mają specyficzną. Podstawowa wersja to Kopi czyli czarna kawa z mlekiem skondensowanym. W różnych wariacjach może być z dodatkiem mleka lub cukru lub wszystko na raz. FOTO KAWKA I SOK Z TRZCINY Typowo singapurskim daniem są kaya tosty. Tościki z dżemem kokosowym (kaya) oraz masłem. Czy może być coś pyszniejszego?!
+![](/uploads/ASI_0807-1.jpg)
+
+Skusiliśmy się też na coś bardziej kontrowersyjnego - na owsiankę z żabą. Danie okazało się bardzo smaczne. Owsianka smakowała jak delikatny, bardzo gęsty krupnik, a mięso żabie też było bardzo delikatne. FOTO ŻABA A co  do picia? Najczęściej sok z trzciny cukrowej. Orzeźwiający, delikatnie słodki. Kawkę w Singapurze też mają specyficzną. Podstawowa wersja to Kopi czyli czarna kawa z mlekiem skondensowanym. W różnych wariacjach może być z dodatkiem mleka lub cukru lub wszystko na raz. FOTO KAWKA I SOK Z TRZCINY Typowo singapurskim daniem są kaya tosty. Tościki z dżemem kokosowym (kaya) oraz masłem. Czy może być coś pyszniejszego?!
 
 W ramach różnych doświadczeń kulinarnych wybraliśmy się na nietypowe śniadanie - do zoo. Śniadanie z orangutanami organizuje singapurski ogród zoologiczny. Karmienie orangutanów odbywa się w restauracji, w której serwowanie jest śniadanie. Bardzo przyjemne doświadczenie. FOTO MAŁPY
 
