@@ -3,7 +3,7 @@ author = ""
 categories = []
 date = "2019-10-24T16:00:00+00:00"
 draft = true
-image = ""
+image = "/uploads/claypot_rice-1.jpg"
 summary = ""
 tags = []
 title = "Co jedliśmy w Singapurze?"
@@ -57,5 +57,7 @@ Poza tanimi daniami z budek zdarzyło nam się również zjeść kolację w rest
 ![](/uploads/20191023_200632-1.jpg)
 
 Jeszcze piękniejszy widok rozpościerał się z dachu Galerii Narodowej, gdzie popijaliśmy lokalnie inspirowane autorskie drinki.
+
+![](/uploads/smoke-1.jpg)
 
 Singapur jest niesamowicie interesujący kulinarnie i wbrew pozorom naprawdę przystępny cenowo.
