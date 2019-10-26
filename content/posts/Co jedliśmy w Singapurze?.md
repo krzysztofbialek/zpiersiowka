@@ -56,6 +56,6 @@ Poza tanimi daniami z budek zdarzyło nam się również zjeść kolację w rest
 
 ![](/uploads/20191023_200632-1.jpg)
 
-FOTO JEŻOWCE, FOTO WIDOCZEK Jeszcze piękniejszy widok rozpościerał się z dachu Galerii Narodowej, gdzie popijaliśmy lokalnie inspirowane autorskie drinki.
+Jeszcze piękniejszy widok rozpościerał się z dachu Galerii Narodowej, gdzie popijaliśmy lokalnie inspirowane autorskie drinki.
 
 Singapur jest niesamowicie interesujący kulinarnie i wbrew pozorom naprawdę przystępny cenowo.
