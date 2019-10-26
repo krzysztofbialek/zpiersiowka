@@ -50,6 +50,12 @@ W programie kulinarnych doświadczeń znalazła się też atrakcja dla dużych d
 
 ![](/uploads/20191024_134617.jpg)
 
-Poza tanimi daniami z budek zdarzyło nam się również zjeść kolację w restauracji. Jedna z nich to lokal położony na 33 piętrze biurowca, ze wspaniałym widokiem na zatokę i słynny hotel ze statkiem na dachu. Udało nam się tam spróbować jeżowców. Niesamowicie delikatne, wręcz kremowe mięso o smaku i aromacie oceanu. FOTO JEŻOWCE, FOTO WIDOCZEK Jeszcze piękniejszy widok rozpościerał się z dachu Galerii Narodowej, gdzie popijaliśmy lokalnie inspirowane autorskie drinki.
+Poza tanimi daniami z budek zdarzyło nam się również zjeść kolację w restauracji. Jedna z nich to lokal położony na 33 piętrze biurowca, ze wspaniałym widokiem na zatokę i słynny hotel ze statkiem na dachu. Udało nam się tam spróbować jeżowców. Niesamowicie delikatne, wręcz kremowe mięso o smaku i aromacie oceanu. 
+
+![](/uploads/20191023_223358-1.jpg)
+
+![](/uploads/20191023_200632-1.jpg)
+
+FOTO JEŻOWCE, FOTO WIDOCZEK Jeszcze piękniejszy widok rozpościerał się z dachu Galerii Narodowej, gdzie popijaliśmy lokalnie inspirowane autorskie drinki.
 
 Singapur jest niesamowicie interesujący kulinarnie i wbrew pozorom naprawdę przystępny cenowo.
