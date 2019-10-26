@@ -42,7 +42,13 @@ Słodycze w Singapurze nie zachwyciły, bo deserki z mleka sojowego albo słodki
 
 ![](/uploads/20191023_005241.jpg)
 
-W programie kulinarnych doświadczeń znalazła się też atrakcja dla dużych dzieci - kawiarnia z superbohaterami. Dużo radości. FOTO KAWIARNIA
+![](/uploads/20191023_005330.jpg)
+
+W programie kulinarnych doświadczeń znalazła się też atrakcja dla dużych dzieci - kawiarnia z superbohaterami. Dużo radości. 
+
+![](/uploads/20191024_132728.jpg)
+
+![](/uploads/20191024_134617.jpg)
 
 Poza tanimi daniami z budek zdarzyło nam się również zjeść kolację w restauracji. Jedna z nich to lokal położony na 33 piętrze biurowca, ze wspaniałym widokiem na zatokę i słynny hotel ze statkiem na dachu. Udało nam się tam spróbować jeżowców. Niesamowicie delikatne, wręcz kremowe mięso o smaku i aromacie oceanu. FOTO JEŻOWCE, FOTO WIDOCZEK Jeszcze piękniejszy widok rozpościerał się z dachu Galerii Narodowej, gdzie popijaliśmy lokalnie inspirowane autorskie drinki.
 
