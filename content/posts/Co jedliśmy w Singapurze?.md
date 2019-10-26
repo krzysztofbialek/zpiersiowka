@@ -16,7 +16,9 @@ Jedzenie jest zawsze jednym z najważniejszych punktów naszego podróżowania, 
 
 Żywiliśmy się w tzw. food court’ach lub howker centrach, czyli kompleksach gdzie na jednej przestrzeni mieści się kilkadziesiąt małych budek z jedzeniem. Świeżo, przepysznie i tanio. Średnie ceny dań to około 15 złotych, a najeść się można było  na pół dnia. Najczęściej jedliśmy makaron z bulonem i różnymi dodatkami, np.lor mee albo rybną laksę. FOTO ZUPA X 2 Trafiliśmy również do budki która znalazła się w którymś z odcinków u Anthonego Bourdein’a. Trzeba przyznać, że hainanieński ryż z kurczakiem był naprawdę pyszny! FOTO KURCZAK, FOTO BUDA I ANTHONY. A co  do picia? Najczęściej sok z trzciny cukrowej. Orzeźwiający, delikatnie słodki. Kawkę w Singapurze też mają specyficzną. Podstawowa wersja to Kopi czyli czarna kawa z mlekiem skondensowanym. W różnych wariacjach może być z dodatkiem mleka lub cukru lub wszystko na raz. FOTO KAWKA I SOK Z TRZCINY Typowo singapurskim daniem są kaya tosty. Tościki z dżemem kokosowym (kaya) oraz masłem. Czy może być coś pyszniejszego?! W ramach różnych doświadczeń kulinarnych wybraliśmy się na nietypowe śniadanie - do zoo. Śniadanie z orangutanami organizuje singapurski ogród zoologiczny. Karmienie orangutanów odbywa się w restauracji, w której serwowanie jest śniadanie. Bardzo przyjemne doświadczenie. 
 
-Słodycze w Singapurze nie zachwyciły, bo deserki z mleka sojowego albo słodkiej fasoli nie były jakoś wybitnie smaczne. Jedynym pysznym punktem była restauracja specjalizująca się w 
+Słodycze w Singapurze nie zachwyciły, bo deserki z mleka sojowego albo słodkiej fasoli nie były jakoś wybitnie smaczne. Jedynym pysznym punktem była restauracja specjalizująca się w matchy. Brownie i tiramisu były naprawdę świetne! 
+
+W programie kulinarnych doznalazła się też atrakcja dla dużych dzieci.
 
 Matcha
 
