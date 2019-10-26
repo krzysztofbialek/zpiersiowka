@@ -20,4 +20,6 @@ Słodycze w Singapurze nie zachwyciły, bo deserki z mleka sojowego albo słodki
 
 W programie kulinarnych doświadczeń znalazła się też atrakcja dla dużych dzieci - kawiarnia z superbohaterami. Dużo radości. FOTO KAWIARNIA
 
-Poza tanimi daniami z budek zdarzyło nam się również zjeść kolację w restauracji. Jedna z nich to lokal położony na 33 piętrze biurowca, ze wspaniałym widokiem na zatokę i słynny hotel z  
+Poza tanimi daniami z budek zdarzyło nam się również zjeść kolację w restauracji. Jedna z nich to lokal położony na 33 piętrze biurowca, ze wspaniałym widokiem na zatokę i słynny hotel ze statkiem na dachu. Udało nam się tam spróbować jeżowców. Niesamowicie delikatne, wręcz kremowe mięso o smaku i aromacie oceanu. FOTO JEŻOWCE, FOTO WIDOCZEK Jeszcze piękniejszy widok rozpościerał się z dachu Galerii Narodowej gdzie popijaliśmy lokalnie inspirowane autorskie drinki. FOTO DRINKI Z WODOKIEM
+
+Singapur jest niesamowicie interesujący kulinarnie i wbrew pozorom naprawdę przystępny cenowo. 
