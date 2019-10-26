@@ -2,7 +2,6 @@
 author = ""
 categories = []
 date = "2019-10-24T16:00:00+00:00"
-draft = true
 image = "/uploads/claypot_rice-1.jpg"
 summary = ""
 tags = []
@@ -28,7 +27,7 @@ Skusiliśmy się też na coś bardziej kontrowersyjnego - na owsiankę z żabą.
 
 ![](/uploads/20191024_193117.jpg)
 
-A co  do picia? Najczęściej sok z trzciny cukrowej. Orzeźwiający, delikatnie słodki. Kawkę w Singapurze też mają specyficzną. Podstawowa wersja to Kopi czyli czarna kawa z mlekiem skondensowanym. W różnych wariacjach może być z dodatkiem mleka lub cukru lub wszystko na raz. 
+A co  do picia? Najczęściej sok z trzciny cukrowej. Orzeźwiający, delikatnie słodki. Kawkę w Singapurze też mają specyficzną. Podstawowa wersja to Kopi czyli czarna kawa z mlekiem skondensowanym. W różnych wariacjach może być z dodatkiem mleka lub cukru lub wszystko na raz.
 
 ![](/uploads/20191024_221530.jpg)
 
@@ -36,21 +35,23 @@ Typowo singapurskim daniem są kaya tosty. Tościki z dżemem kokosowym (kaya) o
 
 ![](/uploads/20191021_155329.jpg)
 
-W ramach różnych doświadczeń kulinarnych wybraliśmy się na nietypowe śniadanie - do zoo. Śniadanie z orangutanami organizuje singapurski ogród zoologiczny. Karmienie orangutanów odbywa się w restauracji, w której serwowanie jest śniadanie. Bardzo przyjemne doświadczenie. FOTO MAŁPY
+W ramach różnych doświadczeń kulinarnych wybraliśmy się na nietypowe śniadanie - do zoo. Śniadanie z orangutanami organizuje singapurski ogród zoologiczny. Karmienie orangutanów odbywa się w restauracji, w której serwowanie jest śniadanie. Bardzo przyjemne doświadczenie.
 
-Słodycze w Singapurze nie zachwyciły, bo deserki z mleka sojowego albo słodkiej fasoli nie były jakoś wybitnie smaczne. Jedynym pysznym punktem była restauracja specjalizująca się w matchy. Brownie i tiramisu były naprawdę świetne! 
+![](/uploads/ASI_0759-1.jpg)
+
+Słodycze w Singapurze nie zachwyciły, bo deserki z mleka sojowego albo słodkiej fasoli nie były jakoś wybitnie smaczne. Jedynym pysznym punktem była restauracja specjalizująca się w matchy. Brownie i tiramisu były naprawdę świetne!
 
 ![](/uploads/20191023_005241.jpg)
 
 ![](/uploads/20191023_005330.jpg)
 
-W programie kulinarnych doświadczeń znalazła się też atrakcja dla dużych dzieci - kawiarnia z superbohaterami. Dużo radości. 
+W programie kulinarnych doświadczeń znalazła się też atrakcja dla dużych dzieci - kawiarnia z superbohaterami. Dużo radości.
 
 ![](/uploads/20191024_132728.jpg)
 
 ![](/uploads/20191024_134617.jpg)
 
-Poza tanimi daniami z budek zdarzyło nam się również zjeść kolację w restauracji. Jedna z nich to lokal położony na 33 piętrze biurowca, ze wspaniałym widokiem na zatokę i słynny hotel ze statkiem na dachu. Udało nam się tam spróbować jeżowców. Niesamowicie delikatne, wręcz kremowe mięso o smaku i aromacie oceanu. 
+Poza tanimi daniami z budek zdarzyło nam się również zjeść kolację w restauracji. Jedna z nich to lokal położony na 33 piętrze biurowca, ze wspaniałym widokiem na zatokę i słynny hotel ze statkiem na dachu. Udało nam się tam spróbować jeżowców. Niesamowicie delikatne, wręcz kremowe mięso o smaku i aromacie oceanu.
 
 ![](/uploads/20191023_223358-1.jpg)
 
