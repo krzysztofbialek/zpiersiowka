@@ -1,12 +1,12 @@
 +++
 author = ""
 categories = []
-date = ""
+date = "2019-10-24T16:00:00+00:00"
 draft = true
 image = ""
 summary = ""
 tags = []
-title = ""
+title = "Co jedliśmy w Singapurze?"
 type = ""
 
 +++
