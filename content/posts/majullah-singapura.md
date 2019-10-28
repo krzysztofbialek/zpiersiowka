@@ -10,9 +10,11 @@ title = "Majullah Singapura!"
 type = ""
 
 +++
-Co oznacza „Naprzód, Singapurze!” to tytuł hymnu Sinagpuru. I świetnie charakteryzuje to miasto, które na przestrzeni 50 lat rozwinęło się w niesamowity sposób. Jeden z tzw. „azjatyckich tygrysów” w ciągu ostantiego półwiecza wykonał ogromny skok gospodarczy. Nowoczesność i świetną prosperitę widać na każdym kroku.
+Co oznacza „Naprzód, Singapurze!” to tytuł hymnu Sinagpuru. I świetnie charakteryzuje to miasto, które na przestrzeni 50 lat rozwinęło się w niesamowity sposób. Jeden z tzw. „azjatyckich tygrysów” w ciągu ostatniego półwiecza wykonał ogromny skok gospodarczy. Nowoczesność i świetną prosperitę widać na każdym kroku.
 
-Nas Singapur zachwycił od pierwszej chwili. Lotnisko, niby nic szczególnego, odloty, przyloty, kontrola graniczna, odbiór bagażu, a tu nagle wyłania się wielopiętrowy ogród, przykryty kopułą, z której do wnętrza spływa wodospad. Niesamowite, piękne! FOTO OGRÓD LOTNISKO
+Nas Singapur zachwycił od pierwszej chwili. Lotnisko, niby nic szczególnego, odloty, przyloty, kontrola graniczna, odbiór bagażu, a tu nagle wyłania się wielopiętrowy ogród, przykryty kopułą, z której do wnętrza spływa wodospad. Niesamowite, piękne! 
+
+![](/uploads/20191020_160704-1.jpg)
 
 Dalej było tylko więcej wspaniałych widoków. Wizyta w Gardens by The Bay i wjazd na słynne, charakterystyczne „drzewa”, które odwiedziliśmy po zmroku. Pokaz świateł i dźwięku był przepiękny. Pięknie również prezentowało się miasto z tej perspektywy. FOTO DRZEWA GARDEN BY THE BAY
 
