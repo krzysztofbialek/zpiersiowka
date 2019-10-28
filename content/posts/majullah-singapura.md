@@ -16,7 +16,9 @@ Nas Singapur zachwycił od pierwszej chwili. Lotnisko, niby nic szczególnego, o
 
 ![](/uploads/20191020_160704-1.jpg)
 
-Dalej było tylko więcej wspaniałych widoków. Wizyta w Gardens by The Bay i wjazd na słynne, charakterystyczne „drzewa”, które odwiedziliśmy po zmroku. Pokaz świateł i dźwięku był przepiękny. Pięknie również prezentowało się miasto z tej perspektywy. FOTO DRZEWA GARDEN BY THE BAY
+Dalej było tylko więcej wspaniałych widoków. Wizyta w Gardens by The Bay i wjazd na słynne, charakterystyczne „drzewa”, które odwiedziliśmy po zmroku. Pokaz świateł i dźwięku był przepiękny. Pięknie również prezentowało się miasto z tej perspektywy. 
+
+![](/uploads/ASI_0727.jpg)
 
 Pokaz fontann w Marina Bay był chyba najpiękniejszym jakiego dotychczas mieliśmy okazję doświadczyć. Niesamowita muzyka, barwy, dynamika strumieni wody, lasery, wyświetlane obrazy tworzyły zapierając dech w piersiach widowisko. I jeszcze bańki unoszące się wśród widowni! :)) FOTO (FILM?) FONTANNY
 
