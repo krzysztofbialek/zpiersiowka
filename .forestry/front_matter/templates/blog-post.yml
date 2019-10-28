@@ -27,5 +27,6 @@ fields:
   name: tags
   label: tags
 pages:
+- content/posts/majullah-singapura.md
 - content/posts/post-dla-kicici.md
 - content/posts/Co jedliśmy w Singapurze?.md
