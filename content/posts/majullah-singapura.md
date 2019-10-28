@@ -18,4 +18,6 @@ Dalej było tylko więcej wspaniałych widoków. Wizyta w Gardens by The Bay i w
 
 Pokaz fontann w Marina Bay był chyba najpiękniejszym jakiego dotychczas mieliśmy okazję doświadczyć. Niesamowita muzyka, barwy, dynamika strumieni wody, lasery, wyświetlane obrazy tworzyły zapierając dech w piersiach widowisko. I jeszcze bańki unoszące się wśród widowni! :)) FOTO (FILM?) FONTANNY
 
-Kolejnym zachwycającym miejscem były wnętrza w Gardens by The Bay. W jednej ze szklanych kopuł zebrano roślinność niemalże z całego świata, a centralnym 
+Kolejnym zachwycającym miejscem były wnętrza w Gardens by The Bay. W jednej ze szklanych kopuł zebrano roślinność niemalże z całego świata, a centralnym punktem były kwitnące akurat w tym momencie rododendrony. Niesamowita feria barw! W drugiej kopule stworzono namiastkę lasu deszczowego. Co pewien czas tworzono wewnątrz mgłę, co podczas spaceru po najwyższych poziomach konstrukcji sprawiało wrażenie spaceru w chmurach! FOTO KWIATKI, FOTO LAS
+
+Ciekawym punktem było również odwiedzenie Galerii Narodowej znajdującej się budynku byłego ratusza miejskiego i sądu, które zostały z nowoczesny sposób zaadoptowane. Wizyta tam, to zetknięcie z historią i sztuką miasta. Jak widać nie tylko lokalne jedzenie poznajemy w podróży. Dla duszy też coś się zawsze znajdzie. 
