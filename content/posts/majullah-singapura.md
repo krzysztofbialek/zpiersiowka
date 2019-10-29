@@ -2,7 +2,6 @@
 author = ""
 categories = []
 date = "2019-10-27T16:00:00+00:00"
-draft = true
 image = ""
 summary = ""
 tags = []
