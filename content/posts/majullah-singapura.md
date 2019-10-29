@@ -2,7 +2,7 @@
 author = ""
 categories = []
 date = "2019-10-27T16:00:00+00:00"
-image = ""
+image = "/uploads/ASI_0708.jpg"
 summary = ""
 tags = []
 title = "Majullah Singapura!"
