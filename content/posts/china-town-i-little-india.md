@@ -1,7 +1,7 @@
 +++
 author = ""
 categories = []
-date = 2019-10-26T16:00:00Z
+date = 2019-10-27T16:00:00Z
 image = "/uploads/ASI_0801.jpg"
 summary = ""
 tags = []
