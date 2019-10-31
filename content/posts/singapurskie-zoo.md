@@ -2,7 +2,6 @@
 author = ""
 categories = []
 date = 2019-10-28T16:00:00Z
-draft = true
 image = "/uploads/ASI_0770.jpg"
 summary = ""
 tags = []
