@@ -14,4 +14,4 @@ Pobyt na Bali spędziliśmy nie do końca typowo. Nie byliśmy na żadnej plaży
 
 Zatrzymaliśmy się w Ubud, artystycznym miasteczku w górzystej części wyspy. Na szczęście w hotelu na uboczu, więc gwar i tłum do nas nie docierały.  Za to mogliśmy się zachwycać bujną roślinnością okolicy. FOTO Z HOTELU 
 
-W ramach „Bali w pigułce” wybraliśmy się na wycieczkę objazdową po okolicy. 
+W ramach „Bali w pigułce” wybraliśmy się na wycieczkę objazdową po okolicy. Odwiedziliśmy plantację kawy 
