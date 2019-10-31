@@ -19,3 +19,7 @@ China Town - urok dzielnicy opiera się na kontraście.  Historyczne domy pierws
 ![](/uploads/ASI_0805.jpg)
 
 Do Little India trafiliśmy akurat w okresie przygotowań do hinduskiego święta światła - Divali. Ulice ozdobione były kolorowymi iluminacjami, co wyglądało przepięknie. Podobnie do naszych dekoracji na Boże Narodzenie, tylko temperatura wokół przyjemniejsza. Mieliśmy wrażenie, jakby cała hinduska społeczność Singapuru zjechała w jedno miejsce na przedświąteczne zakupy. Morze ludzi, tłok i gwar. 
+
+![](/uploads/ASI_0883.jpg)
+
+![](/uploads/ASI_0886.jpg)
