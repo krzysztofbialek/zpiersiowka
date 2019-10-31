@@ -12,4 +12,4 @@ type = ""
 +++
 Zwiedzając Singapur nie mogliśmy pomiąć tych dwóch charakterystycznych dzielnic. Nie mieliśmy zbyt wile czasu, by zagłębić się w ich zakamarki i lepiej poznać historię, więc to tylko pobieżna impresja.
 
-China Town - urok dzielnicy opiera się na kontraście.  Historyczne domy pierwszych osadników chińskiej społeczności kryją się w cieniu wielkich, szklanych biurowców. Wąskie uliczki, świątynie, a obok ludzie w garniturach pędzący do biur. Historia i nowoczesność. Ciekawostką była świątynia w której przechowywany jest ząb Buddy. 
+China Town - urok dzielnicy opiera się na kontraście.  Historyczne domy pierwszych osadników chińskiej społeczności kryją się w cieniu wielkich, szklanych biurowców. Wąskie uliczki, świątynie, a obok ludzie w garniturach pędzący do biur. Historia i nowoczesność. Ciekawostką była świątynia w której przechowywana jest relikwia zęba Buddy. 
