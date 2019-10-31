@@ -23,3 +23,5 @@ Do Little India trafiliśmy akurat w okresie przygotowań do hinduskiego święt
 ![](/uploads/ASI_0883.jpg)
 
 ![](/uploads/ASI_0886.jpg)
+
+![](/uploads/ASI_0893.jpg)
