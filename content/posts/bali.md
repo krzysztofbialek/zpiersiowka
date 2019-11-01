@@ -1,7 +1,7 @@
 +++
 author = ""
 categories = []
-date = ""
+date = 2019-10-28T16:00:00Z
 draft = true
 image = ""
 summary = ""
@@ -20,10 +20,12 @@ Następnie pojechaliśmy na pola ryżowe. Widoki były przepiękne. Bardzo przyj
 
 W naszej szybkiej trasie poglądowej kolejnym punktem była świątynia Ulun Danu Beratan nad jeziorem Beratan. FOTO ŚWIĄTYNIA
 
-I ostatni postój - spacer do bliźniaczych  wodospadów Banyumala. Trasa do nich wymagała pokonania wielu schodków i wzniesień, ale widok był naprawdę imponujący. Szybka kąpiel w wodospadzie i koniec wycieczki. 
+I ostatni postój - spacer do bliźniaczych  wodospadów Banyumala. Trasa do nich wymagała pokonania wielu schodków i wzniesień, ale widok był naprawdę imponujący. Szybka kąpiel w wodospadzie i koniec wycieczki. FOTO WODOSPADY
 
 A ogóle wrażenia z tego krótkiego pobytu na Bali? Pierwsze co się rzuca w oczy, to na pozór chaotyczny, szalony ruch drogowy. I morze skuterów, bo dla większości Balijczyków to podstawowy środek transportu. I tu również pełna dowolność. Niejednokrotnie bez kasków, w klapkach, po trzy osoby na skuterze. Dzieci uczepione na plecach dorosłych lub usadzone gdzieś z przodu. No i jakoś to działa. 
 
 Balijczycy to bardzo uprzejmi i serdeczni ludzie, choć są dosyć nieśmiali. Zakłopotanie maskują nerwowym śmiechem, który est nieodłączną częścią konwersacji z mieszkańcami wyspy. Oczywistą rzeczą jest fakt, że chcą zarobić na boomie turystycznym. I czasami daliśmy się naciągnąć lub przepłaciliśmy mając tego świadomość. Mimo obiegowej opinii, że na każdym kroku próbują turystę oszukać spotkaliśmy z jedną tego typu sytuacją, która mogła uchodzić za zwykłą pomyłkę. 
 
-Bali belly. Kolejny straszak na turystów. Fakt, że nie byliśmy zbyt długo na wyspie, ale nie przytrafiła nam się żadna niestrawność ani zatrucie pokarmowe. Może mieliśmy sporo szczęścia, a może staranniej wybieraliśmy miejsca w których jedliśmy.  A jedzenie na Bali było bardzo smaczne! Począwszy od nasi goreng (smażony ryż) czy mie goreng (smażony makaron) przez gado-gado (rodzaj sałatki z gotowanych na parze warzyw z sosem arachidowym) aż po pisang goreng (banany w cieście) i desery z chlebowca zwanego jackfriutem. 
+Bali belly. Kolejny straszak na turystów. Fakt, że nie byliśmy zbyt długo na wyspie, ale nie przytrafiła nam się żadna niestrawność ani zatrucie pokarmowe. Może mieliśmy sporo szczęścia, a może staranniej wybieraliśmy miejsca w których jedliśmy.  A jedzenie na Bali było bardzo smaczne! Począwszy od nasi goreng (smażony ryż) czy mie goreng (smażony makaron) przez gado-gado (rodzaj sałatki z gotowanych na parze warzyw z sosem arachidowym) aż po pisang goreng (banany w cieście) i desery z chlebowca zwanego jackfriutem. Mało mięsa, ale bardzo sycąco i smacznie. FOTO ZARCIE ZARCIE ZARCIE Mieliśmy też podejście do duriana. Jako że o tej porze trudno było dostać świeży owoc, to substytutem były durianowe lody. Może nie śmierdziało to jakoś niesamowicie, ale w smaku było wybitnie paskudne. Coś podobnego do posłodzonej podgniłej cebuli. Fuj! FOTO DURIAN LODY
+
+Za to mangostan był przepysznym owockiem. Troszkę w smaku przypominał liczi. FOTO MANGOSTAN
