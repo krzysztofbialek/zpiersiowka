@@ -17,3 +17,11 @@ Zatrzymaliśmy się w Ubud, artystycznym miasteczku w górzystej części wyspy.
 W ramach „Bali w pigułce” wybraliśmy się na wycieczkę objazdową po okolicy. Odwiedziliśmy plantację kawy, a właściwie coś co za nią uchodziło. Przewodniczka po tym miejscu pokazała nam uprawiane w okolicy rośliny - kawę, kakao, wanilię czy ginseng. Niewiele to miało wspólnego z faktyczną plantacją bo były to pojedyncze krzaczki, ale i tak było ciekawe, bo mieliśmy okazję zobaczyć jak to w rzeczywistości wygląda. Największą atrakcją tego przybytku był luwak czyli zwierzę, które przez swój przewód pokarmowy „produkuje” najdroższą kawę świata. Mieliśmy okazję jej spróbować. Mniejsza zawartość kofeiny, łagodniejsza, ale dosyć kwaśna. Na nasze gusta, to nie była najlepsza kawka na świecie. FOTO LUWAK, FOTO KAWKI
 
 Następnie pojechaliśmy na pola ryżowe. Widoki były przepiękne. Bardzo przyjemny był spacer po tarasach. FOTO POLA RYŻOWE
+
+W naszej szybkiej trasie poglądowej kolejnym punktem była świątynia Ulun Danu Beratan nad jeziorem Beratan. FOTO ŚWIĄTYNIA
+
+I ostatni postój - spacer do bliźniaczych  wodospadów Banyumala. Trasa do nich wymagała pokonania wielu schodków i wzniesień, ale widok był naprawdę imponujący. Szybka kąpiel w wodospadzie i koniec wycieczki. 
+
+A ogóle wrażenia z tego krótkiego pobytu na Bali? Pierwsze co się rzuca w oczy, to na pozór chaotyczny, szalony ruch drogowy. I morze skuterów, bo dla większości Balijczyków to podstawowy środek transportu. I tu również pełna dowolność. Niejednokrotnie bez kasków, w klapkach, po trzy osoby na skuterze. Dzieci uczepione na plecach dorosłych lub usadzone gdzieś z przodu. No i jakoś to działa. 
+
+Balijczycy to bardzo uprzejmi i serdeczni ludzie, choć są dosyć nieśmiali. Zakłopotanie maskują nerwowym śmiechem, który est nieodłączną częścią konwersacji z mieszkańcami wyspy. Oczywistą rzeczą jest fakt, że chcą zarobić na boomie turystycznym. I czasami daliśmy się naciągnąć lub przepłaciliśmy mając tego świadomość. Mimo obiegowej opinii, że na każdym kroku próbują turystę oszukać spotkaliśmy z jedną tego typu sytuacją, która mogła uchodzić za zwykłą pomyłkę. 
