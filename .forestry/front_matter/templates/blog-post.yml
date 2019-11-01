@@ -27,9 +27,9 @@ fields:
   name: tags
   label: tags
 pages:
+- content/posts/bali.md
 - content/posts/singapurskie-zoo.md
 - content/posts/china-town-i-little-india.md
 - content/posts/majullah-singapura.md
-- content/posts/bali.md
 - content/posts/Co jedliśmy w Singapurze?.md
 - content/posts/post-dla-kicici.md
