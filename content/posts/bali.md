@@ -52,4 +52,6 @@ Bali belly. Kolejny straszak na turystów. Fakt, że nie byliśmy zbyt długo na
 
 ![](/uploads/20191028_174102.jpg)
 
-Za to mangostan był przepysznym owockiem. Troszkę w smaku przypominał liczi. FOTO MANGOSTAN
+Za to mangostan był przepysznym owockiem. Troszkę w smaku przypominał liczi. 
+
+![](/uploads/20191028_194634.jpg)
