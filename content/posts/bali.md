@@ -34,7 +34,11 @@ W naszej szybkiej trasie poglądowej kolejnym punktem była świątynia Ulun Dan
 
 ![](/uploads/ASI_0964.jpg)
 
-I ostatni postój - spacer do bliźniaczych  wodospadów Banyumala. Trasa do nich wymagała pokonania wielu schodków i wzniesień, ale widok był naprawdę imponujący. Szybka kąpiel w wodospadzie i koniec wycieczki. FOTO WODOSPADY
+I ostatni postój - spacer do bliźniaczych  wodospadów Banyumala. Trasa do nich wymagała pokonania wielu schodków i wzniesień, ale widok był naprawdę imponujący. Szybka kąpiel w wodospadzie i koniec wycieczki. 
+
+![](/uploads/20191027_203318.jpg)
+
+![](/uploads/ASI_0967.jpg)
 
 Będąc w Ubud nie mogliśmy nie wybrać się do słynnego małpiego lasu. Małpy nie okazały się tak natarczywe i agresywne jak można się było tego spodziewać. Na terenie małpiego sanktuarium znajduje się świątynia, w której Balijki przygotowywały się do uroczystości. Jest też tymczasowy cmentarz, na którym grzebane są zwłoki oczekujące na zbiorową, uroczystą kremację.  FOTO MAŁPY
 
