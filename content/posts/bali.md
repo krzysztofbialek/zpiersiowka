@@ -2,8 +2,7 @@
 author = ""
 categories = []
 date = 2019-10-28T16:00:00Z
-draft = true
-image = ""
+image = "/uploads/ASI_0938.jpg"
 summary = ""
 tags = []
 title = "Bali"
