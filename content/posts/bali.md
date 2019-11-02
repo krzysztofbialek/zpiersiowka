@@ -22,13 +22,15 @@ W ramach „Bali w pigułce” wybraliśmy się na wycieczkę objazdową po okol
 
 ![](/uploads/ASI_1038.jpg)
 
-Następnie pojechaliśmy na pola ryżowe. Widoki były przepiękne. Bardzo przyjemny był spacer po tarasach. 
+Następnie pojechaliśmy na pola ryżowe. Widoki były przepiękne. Bardzo przyjemny był spacer po tarasach.
+
+![](/uploads/20191027_112854.jpg)
 
 ![](/uploads/ASI_0946.jpg)
 
-![](/uploads/ASI_0938.jpg)
+![](/uploads/ASI_0950.jpg)
 
-W naszej szybkiej trasie poglądowej kolejnym punktem była świątynia Ulun Danu Beratan nad jeziorem Beratan. 
+W naszej szybkiej trasie poglądowej kolejnym punktem była świątynia Ulun Danu Beratan nad jeziorem Beratan.
 
 I ostatni postój - spacer do bliźniaczych  wodospadów Banyumala. Trasa do nich wymagała pokonania wielu schodków i wzniesień, ale widok był naprawdę imponujący. Szybka kąpiel w wodospadzie i koniec wycieczki. FOTO WODOSPADY
 
