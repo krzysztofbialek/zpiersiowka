@@ -40,7 +40,9 @@ I ostatni postój - spacer do bliźniaczych  wodospadów Banyumala. Trasa do nic
 
 ![](/uploads/ASI_0967.jpg)
 
-Będąc w Ubud nie mogliśmy nie wybrać się do słynnego małpiego lasu. Małpy nie okazały się tak natarczywe i agresywne jak można się było tego spodziewać. Na terenie małpiego sanktuarium znajduje się świątynia, w której Balijki przygotowywały się do uroczystości. Jest też tymczasowy cmentarz, na którym grzebane są zwłoki oczekujące na zbiorową, uroczystą kremację.  FOTO MAŁPY
+Będąc w Ubud nie mogliśmy nie wybrać się do słynnego małpiego lasu. Małpy nie okazały się tak natarczywe i agresywne jak można się było tego spodziewać. Na terenie małpiego sanktuarium znajduje się świątynia, w której Balijki przygotowywały się do uroczystości. Jest też tymczasowy cmentarz, na którym grzebane są zwłoki oczekujące na zbiorową, uroczystą kremację.  
+
+![](/uploads/ASI_1045.jpg)
 
 A ogóle wrażenia z tego krótkiego pobytu na Bali? Pierwsze co się rzuca w oczy, to na pozór chaotyczny, szalony ruch drogowy. I morze skuterów, bo dla większości Balijczyków to podstawowy środek transportu. I tu również pełna dowolność. Niejednokrotnie bez kasków, w klapkach, po trzy osoby na skuterze. Dzieci uczepione na plecach dorosłych lub usadzone gdzieś z przodu. No i jakoś to działa.
 
