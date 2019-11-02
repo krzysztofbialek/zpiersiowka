@@ -33,13 +33,13 @@ W naszej szybkiej trasie poglądowej kolejnym punktem była świątynia Ulun Dan
 
 ![](/uploads/ASI_0964.jpg)
 
-I ostatni postój - spacer do bliźniaczych  wodospadów Banyumala. Trasa do nich wymagała pokonania wielu schodków i wzniesień, ale widok był naprawdę imponujący. Szybka kąpiel w wodospadzie i koniec wycieczki. 
+I ostatni postój - spacer do bliźniaczych  wodospadów Banyumala. Trasa do nich wymagała pokonania wielu schodków i wzniesień, ale widok był naprawdę imponujący. Szybka kąpiel w wodospadzie i koniec wycieczki.
 
 ![](/uploads/20191027_203318.jpg)
 
 ![](/uploads/ASI_0967.jpg)
 
-Będąc w Ubud nie mogliśmy nie wybrać się do słynnego małpiego lasu. Małpy nie okazały się tak natarczywe i agresywne jak można się było tego spodziewać. Na terenie małpiego sanktuarium znajduje się świątynia, w której Balijki przygotowywały się do uroczystości. Jest też tymczasowy cmentarz, na którym grzebane są zwłoki oczekujące na zbiorową, uroczystą kremację.  
+Będąc w Ubud nie mogliśmy nie wybrać się do słynnego małpiego lasu. Małpy nie okazały się tak natarczywe i agresywne jak można się było tego spodziewać. Na terenie małpiego sanktuarium znajduje się świątynia, w której Balijki przygotowywały się do uroczystości. Jest też tymczasowy cmentarz, na którym grzebane są zwłoki oczekujące na zbiorową, uroczystą kremację.
 
 ![](/uploads/ASI_1045.jpg)
 
@@ -47,11 +47,11 @@ A ogóle wrażenia z tego krótkiego pobytu na Bali? Pierwsze co się rzuca w oc
 
 Balijczycy to bardzo uprzejmi i serdeczni ludzie, choć są dosyć nieśmiali. Zakłopotanie maskują nerwowym śmiechem, który est nieodłączną częścią konwersacji z mieszkańcami wyspy. Oczywistą rzeczą jest fakt, że chcą zarobić na boomie turystycznym. I czasami daliśmy się naciągnąć lub przepłaciliśmy mając tego świadomość. Mimo obiegowej opinii, że na każdym kroku próbują turystę oszukać spotkaliśmy z jedną tego typu sytuacją, która mogła uchodzić za zwykłą pomyłkę. Choć zawsze warto przeliczyć jeszcze raz samemu pieniądze podczas wymiany w kantorze.
 
-Bali belly. Kolejny straszak na turystów. Fakt, że nie byliśmy zbyt długo na wyspie, ale nie przytrafiła nam się żadna niestrawność ani zatrucie pokarmowe. Może mieliśmy sporo szczęścia, a może staranniej wybieraliśmy miejsca w których jedliśmy. _A może też bardzo nam pomogło picie filtrowanej wody. Jak się okazało, nasz filtr do wody poradził sobie nawet z wodą z wodospadu. Pozwoliło nam to też nie kupić przez cały pobyt ani jednej plastikowej butelki z wodą a także nie zużywać tych, które mieliśmy w pokoju hotelowym. Plastikowe śmieci są na Bali ogromnym problemem, dobrze więc było dołożyć swoją małą cegiełkę do popawy tego stanu._ 
+Bali belly. Kolejny straszak na turystów. Fakt, że nie byliśmy zbyt długo na wyspie, ale nie przytrafiła nam się żadna niestrawność ani zatrucie pokarmowe. Może mieliśmy sporo szczęścia, a może staranniej wybieraliśmy miejsca w których jedliśmy. _A może też bardzo nam pomogło picie filtrowanej wody. Jak się okazało, nasz filtr do wody poradził sobie nawet z wodą z wodospadu. Pozwoliło nam to też nie kupić przez cały pobyt ani jednej plastikowej butelki z wodą a także nie zużywać tych, które mieliśmy w pokoju hotelowym. Plastikowe śmieci są na Bali ogromnym problemem, dobrze więc było dołożyć swoją małą cegiełkę do popawy tego stanu._
 
 ![](/uploads/20191027_203006.jpg)
 
-A jedzenie na Bali było bardzo smaczne! Począwszy od nasi goreng (smażony ryż) czy mie goreng (smażony makaron) przez gado-gado (rodzaj sałatki z gotowanych na parze warzyw z sosem arachidowym) aż po pisang goreng (banany w cieście) i desery z chlebowca zwanego jackfriutem. Mało mięsa, ale bardzo sycąco i smacznie. 
+A jedzenie na Bali było bardzo smaczne! Począwszy od nasi goreng (smażony ryż) czy mie goreng (smażony makaron) przez gado-gado (rodzaj sałatki z gotowanych na parze warzyw z sosem arachidowym) aż po pisang goreng (banany w cieście) i desery z chlebowca zwanego jackfriutem. Mało mięsa, ale bardzo sycąco i smacznie.
 
 ![](/uploads/20191027_211605.jpg)
 
@@ -59,10 +59,12 @@ A jedzenie na Bali było bardzo smaczne! Począwszy od nasi goreng (smażony ry�
 
 ![](/uploads/20191025_211459.jpg)
 
-Mieliśmy też podejście do duriana. Jako że o tej porze trudno było dostać świeży owoc, to substytutem były durianowe lody. Może nie śmierdziało to jakoś niesamowicie, ale w smaku było wybitnie paskudne. Coś podobnego do posłodzonej podgniłej cebuli. Fuj! 
+Mieliśmy też podejście do duriana. Jako że o tej porze trudno było dostać świeży owoc, to substytutem były durianowe lody. Może nie śmierdziało to jakoś niesamowicie, ale w smaku było wybitnie paskudne. Coś podobnego do posłodzonej podgniłej cebuli. Fuj!
 
 ![](/uploads/20191028_174102.jpg)
 
-Za to mangostan był przepysznym owockiem. Troszkę w smaku przypominał liczi. 
+Za to mangostan był przepysznym owockiem. Troszkę w smaku przypominał liczi.
 
 ![](/uploads/20191028_194634.jpg)
+
+_Bali, które poznaliśmy dość istotnie różni się od tego z „Jedz, módl się, kochaj”. Jest dużo bardziej chaotyczne, głośniejsze i niestety zanieczyszczone plastikiem, ale wciąż bardzo piękne i różnorodne a ludzie są mili i otwarci. Warto tu będzie wrócić._
