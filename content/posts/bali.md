@@ -26,7 +26,7 @@ Następnie pojechaliśmy na pola ryżowe. Widoki były przepiękne. Bardzo przyj
 
 ![](/uploads/20191027_112854.jpg)
 
-![](/uploads/ASI_0946.jpg)
+![](/uploads/ASI_0946.jpg)_Tym przyjemniejszy, iż można było cieszyć się smakiem świeżej wody kokosowej podziwiając piękny widok._
 
 ![](/uploads/ASI_0950.jpg)
 
