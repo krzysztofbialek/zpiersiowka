@@ -54,7 +54,11 @@ Bali belly. Kolejny straszak na turystów. Fakt, że nie byliśmy zbyt długo na
 
 A jedzenie na Bali było bardzo smaczne! Począwszy od nasi goreng (smażony ryż) czy mie goreng (smażony makaron) przez gado-gado (rodzaj sałatki z gotowanych na parze warzyw z sosem arachidowym) aż po pisang goreng (banany w cieście) i desery z chlebowca zwanego jackfriutem. Mało mięsa, ale bardzo sycąco i smacznie. 
 
+![](/uploads/20191027_211605.jpg)
+
 ![](/uploads/img_20191027_211336_997.jpg)
+
+![](/uploads/20191025_211459.jpg)
 
 Mieliśmy też podejście do duriana. Jako że o tej porze trudno było dostać świeży owoc, to substytutem były durianowe lody. Może nie śmierdziało to jakoś niesamowicie, ale w smaku było wybitnie paskudne. Coś podobnego do posłodzonej podgniłej cebuli. Fuj! 
 
