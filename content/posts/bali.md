@@ -67,4 +67,6 @@ Za to mangostan był przepysznym owockiem. Troszkę w smaku przypominał liczi.
 
 ![](/uploads/20191028_194634.jpg)
 
-_Bali, które poznaliśmy dość istotnie różni się od tego z „Jedz, módl się, kochaj”. Jest dużo bardziej chaotyczne, głośniejsze i niestety zanieczyszczone plastikiem, ale wciąż bardzo piękne i różnorodne a ludzie są mili i otwarci. Warto tu będzie wrócić._
+_Bali, które poznaliśmy dość istotnie różni się od tego z „Jedz, módl się, kochaj”. Jest dużo bardziej chaotyczne, głośniejsze i niestety zanieczyszczone plastikiem, ale wciąż bardzo piękne i różnorodne a ludzie są mili i otwarci. Nie można też zapomnieć o super taniej świeżej wodzie z kokosa, kosztującej niecałe 6pln za 1.5l :)_ 
+
+_Warto tu będzie wrócić._
