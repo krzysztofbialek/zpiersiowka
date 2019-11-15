@@ -27,6 +27,7 @@ fields:
   name: tags
   label: tags
 pages:
+- content/posts/flores-małe-wyspy-sundajskie-indonezja.md
 - content/posts/bali.md
 - content/posts/singapurskie-zoo.md
 - content/posts/china-town-i-little-india.md
