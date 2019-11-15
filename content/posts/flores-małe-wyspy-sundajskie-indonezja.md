@@ -6,7 +6,7 @@ draft = true
 image = ""
 summary = ""
 tags = []
-title = "Flores. Małe Wyspy Sundajskie. Indonezja. "
+title = "Flores. Komodo. Małe Wyspy Sundajskie. Indonezja. "
 type = ""
 
 +++
@@ -20,6 +20,20 @@ Pierwszym punktem w planie rejsu była wyspa (Kicio wie jak się nazywała), gdz
 
 FOTO Z GÓRKI
 
-Popłynęliśmy dalej, a następnym przystankiem była różowa plaża. Przecudna! Od strony morza wyglądała wspaniale, ale dopiero po zejściu na plażę widać było jej prawdziwy różowy odcień. W kontraście z błękitem wody i nieba urzekające! Swoją barwę zawdzięcza drobinkom koralowca zmieszanym z piaskiem. Mogliśmy też podziwiać podwodne życie snurkując w kilku miejscach podczas rejsu. 
+Popłynęliśmy dalej, a następnym przystankiem była różowa plaża. Przecudna! Od strony morza wyglądała wspaniale, ale dopiero po zejściu na plażę widać było jej prawdziwy różowy odcień. W kontraście z błękitem wody i nieba urzekające! Swoją barwę zawdzięcza drobinkom koralowca zmieszanym z piaskiem. Mogliśmy też podziwiać podwodne życie snurkując w kilku miejscach podczas rejsu.
 
 FOTO RÓŻOWA PLAŻA
+
+No i główny punkt programu - rezerwat waranów. Kilkukilometrowy spacer po rezerwacie bez gwarancji zobaczenia smoka z Komodo. Ale my mieliśmy szczęście, bo zobaczyliśmy, aż 4 okazy. Robią wrażenie swoją wielkością i budzą nieco grozy. W ciągu dnia i w upale są ospałe, i całe szczęście, bo wbrew pozorom potrafią się bardzo szybko przemieszczać. Mają ciekawy sposób odżywiania - zjadają na raz około 40 kilogramów mięsa, a potem przez miesiąc je trawią. Pewnie stąd ich specyficzny zapach. 
+
+FOTO WARAN
+
+Wracając podziwialiśmy piękny zachód słońca. 
+
+FOTO ZACHÓD SŁOŃCA
+
+Resztę pobytu spędziliśmy już całkowicie relaksacyjnie na leżaku i na nurkowaniu. 
+
+Ta część świata ma ogromny problem z wszechobecnymi śmieciami. Nie dość, że społeczeństwo, jak we wszystkich krajach rozwijających się nie traktuje kwestii ochrony środowiska jako najważniejszego ze swoich problemów, to jeszcze kraje rozwinięte traktują te rejony jako własne wysypisko eksportując tu masę odpadów. Śmieci są wszędzie. Na ulicach, na plaży, w morzu. Zatrzymaliśmy się w hotelu, który jak się okazało bardzo dużą wagę przywiązuje do ekologii. Nie było plastikowych butelek z wodą w pokojach, a tylko dystrybutory we wspólnej przestrzeni z których można było podbierać wodę do własnych butelek. Ze względu na to, że wyjeżdżaliśmy na wycieczkę przed śniadaniem dostaliśmy suchy prowiant, który był zapakowany w typowe jednorazowe pudełka do serwowania posiłków, ale z dołączoną prośbą o zwrot, by sami mogli posegregować te odpady. A zamiast foliowej torby zawinięte były w chustę. I wiele takich rozwiązań, które realizował z pozoru przeciętny hotel. Jest więc nadzieja i może z czasem wszystko będzie szło w tym kierunku. Szkoda byłoby gdyby tak piękny skrawek świata utonął w morzu plastiku. 
+
+ 
