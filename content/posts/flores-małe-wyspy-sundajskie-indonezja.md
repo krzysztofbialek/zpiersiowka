@@ -40,4 +40,4 @@ Ta część świata ma ogromny problem z wszechobecnymi śmieciami. Nie dość, 
 
 A na koniec Pan Gekon - król wszystkich gekonów, który miał domek za obrazem. I zmieniał odcienie. 
 
-FOTO KTÓL GEKONÓW
+FOTO KRÓL GEKONÓW
