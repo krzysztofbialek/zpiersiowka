@@ -1,9 +1,8 @@
 +++
 author = ""
 categories = []
-date = 2019-10-31T23:00:00Z
-draft = true
-image = ""
+date = 2019-11-16T23:00:00Z
+image = "/uploads/blog_10.jpg"
 summary = ""
 tags = []
 title = "Flores. Komodo. Małe Wyspy Sundajskie. Indonezja. "
@@ -36,10 +35,16 @@ Wracając podziwialiśmy piękny zachód słońca.
 
 Resztę pobytu spędziliśmy już całkowicie relaksacyjnie na leżaku i na nurkowaniu.
 
+![](/uploads/blog_4.jpg)
+
+![](/uploads/blog_5.jpg)
+
+![](/uploads/blog_7.jpg)
+
 Ta część świata ma ogromny problem z wszechobecnymi śmieciami. Nie dość, że społeczeństwo, jak we wszystkich krajach rozwijających się nie traktuje kwestii ochrony środowiska jako najważniejszego ze swoich problemów, to jeszcze kraje rozwinięte traktują te rejony jako własne wysypisko eksportując tu masę odpadów. Śmieci są wszędzie. Na ulicach, na plaży, w morzu. W Labuan Bajo zatrzymaliśmy się w hotelu, który jak się okazało bardzo dużą wagę przywiązuje do ekologii. Nie było plastikowych butelek z wodą w pokojach, a tylko dystrybutory we wspólnej przestrzeni z których można było podbierać wodę do własnych butelek. Ze względu na to, że wyjeżdżaliśmy na wycieczkę przed śniadaniem dostaliśmy suchy prowiant, który był zapakowany w typowe jednorazowe pudełka do serwowania posiłków, ale z dołączoną prośbą o zwrot, by sami mogli posegregować te odpady. A zamiast foliowej torby zawinięte były w chustę. I wiele takich rozwiązań, które realizował z pozoru przeciętny hotel. Jest więc nadzieja i może z czasem wszystko będzie szło w tym kierunku. Szkoda byłoby gdyby tak piękny skrawek świata utonął w morzu plastiku.
 
-FOTO ŚMIECI NA PLAŻY
+![](/uploads/blog_6.jpg)
 
 A na koniec Pan Gekon - król wszystkich gekonów, który miał domek za obrazem. I zmieniał odcienie.
 
-FOTO KRÓL GEKONÓW
+![](/uploads/blog_9.jpg)
