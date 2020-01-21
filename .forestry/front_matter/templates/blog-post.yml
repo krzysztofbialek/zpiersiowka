@@ -27,10 +27,11 @@ fields:
   name: tags
   label: tags
 pages:
-- content/posts/flores-małe-wyspy-sundajskie-indonezja.md
-- content/posts/bali.md
-- content/posts/singapurskie-zoo.md
-- content/posts/china-town-i-little-india.md
-- content/posts/majullah-singapura.md
 - content/posts/Co jedliśmy w Singapurze?.md
+- content/posts/bali.md
+- content/posts/bergamo-czyli-jak-nie-przytyć-na-włoskiej-kuchni.md
+- content/posts/china-town-i-little-india.md
+- content/posts/flores-małe-wyspy-sundajskie-indonezja.md
+- content/posts/majullah-singapura.md
 - content/posts/post-dla-kicici.md
+- content/posts/singapurskie-zoo.md
