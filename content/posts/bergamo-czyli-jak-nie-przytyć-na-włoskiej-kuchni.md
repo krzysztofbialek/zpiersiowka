@@ -29,3 +29,5 @@ FOTO SUFIT
 Mając tylko weekend skupiliśmy się głównie na „zdeptaniu” miasta i spróbowaniu jak najwięcej lokalnych przysmaków. Pozostałą turystyczną cześć miasta czyli Citta Bassa i Zamek też zobaczyliśmy, ale raczej pobieżnie. A po całodziennym wędrowaniu i wieczornym obżarstwie wracaliśmy do mieszkania na winko i serial. „Nowy Papież” na Netfixie pasował tu wyjątkowo dobrze. A do tego czerwone Valcalepio. :)
 
 Bergamo bardzo nam się podobało, wiele jeszcze pozostało do zobaczenia. Pobliskie miasteczka, jezioro Como, termy San Pellegrino zachęcają do powrotu. Połączenie lotnicze z Okęcia na Orio al Serio sprawia, że pewnie będziemy tu wracać.
+
+MOŻE JESZCZE JAKIEŚ FOTO? 
