@@ -32,9 +32,13 @@ Było to całkiem sympatyczne doświadczenie. Kolejka ma już swoje lata, ale w 
 
 Nam do gustu najbardziej przypadło Górne Miasto (Citta Alta) - średniowieczna mieszczańska cześć otoczona murami. Mieliśmy do niej najbliżej z naszego lokum, wiec udało nam się ja najlepiej poznać. Swoją droga nasze wynajęte mieszkanie w kamienicy było również urocze, a zabytkowy sufit dodawał miejscu klimatu.
 
-FOTO SUFIT
+![](/uploads/bergamo_001.jpg)
 
 Mając tylko weekend skupiliśmy się głównie na „zdeptaniu” miasta i spróbowaniu jak najwięcej lokalnych przysmaków. Pozostałą turystyczną cześć miasta czyli Citta Bassa i Zamek też zobaczyliśmy, ale raczej pobieżnie. A po całodziennym wędrowaniu i wieczornym obżarstwie wracaliśmy do mieszkania na winko i serial. „Nowy Papież” na Netfixie pasował tu wyjątkowo dobrze. A do tego czerwone Valcalepio. :)
+
+_A także lokalne 'tanie' winko w słoiczkach :)_
+
+![](/uploads/bergamo_063.jpg)
 
 Bergamo bardzo nam się podobało, wiele jeszcze pozostało do zobaczenia. Pobliskie miasteczka, jezioro Como, termy San Pellegrino zachęcają do powrotu. Połączenie lotnicze z Okęcia na Orio al Serio sprawia, że pewnie będziemy tu wracać.
 
