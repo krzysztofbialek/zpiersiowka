@@ -42,4 +42,6 @@ _A także lokalne 'tanie' winko w słoiczkach :)_
 
 Bergamo bardzo nam się podobało, wiele jeszcze pozostało do zobaczenia. Pobliskie miasteczka, jezioro Como, termy San Pellegrino zachęcają do powrotu. Połączenie lotnicze z Okęcia na Orio al Serio sprawia, że pewnie będziemy tu wracać.
 
-MOŻE JESZCZE JAKIEŚ FOTO?
+![](/uploads/bergamo_047.jpg)
+
+![](/uploads/bergamo_065.jpg)
