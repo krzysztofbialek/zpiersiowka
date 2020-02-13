@@ -20,11 +20,15 @@ Zimowy wypad do Włoch. Wolny weekend, tani przelot i można nacieszyć ciało i
 
 Ale Bergamo sprzyjało zachowaniu figury. Miasto położone jest na wzgórzu, wiec codzienne spacery wymagały pokonywania wzniesienia w górę i w dół. Pochłonięte pyszności nie miały szansy się odłożyć. Było, owszem, ułatwienie w postaci kolejki linowej, ale potraktowaliśmy ją jako atrakcję turystyczną, a nie środek transportu i przejechaliśmy nią tylko raz.
 
-FOTO KOLEJKA
+![](/uploads/bergamo_044.jpg)
 
 Było to całkiem sympatyczne doświadczenie. Kolejka ma już swoje lata, ale w tym chyba tkwi jej cały urok. Widok na miasto z okien kolejki był wspaniały. Z resztą z wielu punktów Bergamo robi wrażenie swoimi brązowymi dachami i ośnieżonymi górami w tle. Widać dbałość o spójność architektoniczna miasta. Nawet nowe budynki są projektowane ze smakiem i idealnie wtapiają się w historyczna zabudowę.
 
-FOTO LANDSZAFCIK
+![](/uploads/bergamo_066.jpg)
+
+![](/uploads/bergamo_018.jpg)
+
+![](/uploads/bergamo_007.jpg)
 
 Nam do gustu najbardziej przypadło Górne Miasto (Citta Alta) - średniowieczna mieszczańska cześć otoczona murami. Mieliśmy do niej najbliżej z naszego lokum, wiec udało nam się ja najlepiej poznać. Swoją droga nasze wynajęte mieszkanie w kamienicy było również urocze, a zabytkowy sufit dodawał miejscu klimatu.
 
