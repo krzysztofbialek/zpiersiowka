@@ -3,7 +3,7 @@ author = ""
 categories = []
 date = 2021-01-31T23:00:00Z
 draft = true
-image = ""
+image = "/uploads/swieradow_052-1.jpeg"
 summary = ""
 tags = []
 title = "Podróże w czasach zarazy"
@@ -14,13 +14,15 @@ Chyba nikt nie spodziewał się, że 2020 rok będzie tak wyglądał, że może 
 
 W lutym, tuż przed pojawieniem się wirusa w naszym kraju, wybraliśmy się w okolice Szklarskiej Poręby na biegówki. Nocowaliśmy w Świeradowie Zdroju, a na naukę jazdy wybieraliśmy się na Polanę Jakuszycką. To był nasz pierwszy kontakt z nartami biegowymi, ale zapewne nie ostatni. Niesamowicie przyjemny sport, choć początki nie są łatwe, a poobijany tyłek może szybko zniechęcić. Poza nartami i relaksem w spa zwiedzaliśmy piękne karkonoskie okolice. Szczególnie podobało nam się zwiedzanie huty kryształu Julia. Nie spodziewaliśmy się, że będzie to tak ciekawe miejsce. Produkowane tam kryształowe przedmioty są przepiękne, a wycieczka po hucie z przewodnikiem bardzo ciekawa. Smutnym faktem jest, że to jedyna huta szkła kryształowego w Polsce, a większość załogi stanowią ludzie po czterdziestce. Niewielu młodych ma ochotę uczyć się tego zawodu, więc pewnie za jakiś czas nie będzie ludzi, którzy będą potrafili wyczarować takie cuda.
 
-Foto z huty.
+![](/uploads/20200303_151956.jpeg)
 
 W maju zluzowano restrykcje. Po prawie dwóch miesiącach wszelkich ograniczeń, zakazów wychodzenia z domu, zamknięcia granic, uznano, że jest bezpieczniej. W związku z tym otwarto bazę noclegową. Dzięki temu udało nam się wybrać na tydzień do Kołobrzegu. Wyjazd niczym na wczasy z FWP, pobyt w domu wczasowym Gryf II, posiłki na stołówce, rewelacja! Zabraliśmy rowery, więc spędziliśmy ten czas aktywnie. Odbyliśmy najdłuższą wycieczkę rowerową w naszym życiu - 90 km. z Kołobrzegu do Trzęsacza i z powrotem wzdłuż wybrzeża. Infrastruktura rowerowa Pomorza Zachodniego zachwyca. Z resztą wybrzeże Bałtyku ma szczęście do ilości i jakości ścieżek rowerowych, stąd nasz apetyt na więcej. Może kiedyś wyprawa rowerowa z zachodu na wschód? Albo odwrotnie.
 
 Strach przed wirusem spowodował, że mimo całkiem przyjemnej pogody wypoczywających w Kołobrzegu było mało. A zamknięte nadal granice spowodowały, że nie pojawili się zagraniczni turyści. Było wspaniale, pusto, cicho i spokojnie.
 
-Foto budka do odpoczywania przy scieżce rowerowej + jakis landszafcik, może rowerki na tle morza?
+![](/uploads/kolobrzeg_017.jpeg)
+
+![](/uploads/kolobrzeg_006.jpeg)
 
 Bałtyk ma swój urok. A urok bez tłumów ludzi, kiczu i tandety jeszcze bardziej urzeka. We wrześniu wybraliśmy się ponownie nad morze, tym razem do Dębek. Większość lokalnych „atrakcji” pozamykana, ale udało nam się zjeść jeszcze pyszną rybę w barze Rybka. Z resztą żywienia radziliśmy sobie we własnym zakresie. Grill przy domku w którym mieszkaliśmy był bardzo przydatny. Swoją drogą miejsce, w którym nocowaliśmy było bardzo przyjemne - cztery domki na dosyć sporej przestrzeni, na odbrzeżach miasteczka, w pobliżu lasu. Kameralnie i bardzo klimatycznie. Szkoda, że mieliśmy do dyspozycji tylko weekend, bo pokonanie tej trasy samochodem to istna męka. Ale i tak było warto.
 
