@@ -1,5 +1,5 @@
 +++
-author = ""
+author = "Dwójka Drombo"
 categories = []
 date = 2021-01-31T23:00:00Z
 draft = true
@@ -50,6 +50,6 @@ Tym razem Teneryfa. Mimo, że Lanzarote oferuje piękniejsze plaże, to jednak d
 
 A po powrocie do kraju zafundowaliśmy sobie miękkie lądowanie i nieco mniej bolesny powrót do szarej i mglistej polskiej rzeczywistości. Wybraliśmy się na kilka dni do Buska Zdroju. Mimo, że sanatoria zamknięte, a większość hoteli działała w ograniczonym zakresie, istniała jednak możliwość skorzystania z wyjazdu sanatoryjnego celem podreperowania stanu zdrowia. A że każdemu z nas coś strzykało, gdzieś łupało, to okazja było niepowtarzalna. I pobyt okazał się bardzo skuteczny. Odkryliśmy również nieznane nam dotąd uroki tego uzdrowiskowego miasteczka, zwłaszcza, ze byliśmy jednymi z nielicznych kuracjuszy.
 
-foto
+![](/uploads/20201122_200656.jpeg)
 
 Mieliśmy dużo szczęścia, że w tym jakże osobliwym roku udało nam wyrwać na tych kilka wypadów. Miliśmy dużo szczęścia, że wszystkie skończyły się dobrze, że nic nam się nie przytrafiło. Rzeczywistość pandemiczna dopadła nas krótko po powrocie z ostatniego wyjazdu, ale to już zupełnie inna historia.
