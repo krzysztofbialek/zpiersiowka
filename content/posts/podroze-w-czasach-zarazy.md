@@ -2,7 +2,6 @@
 author = "Dwójka Drombo"
 categories = []
 date = 2021-01-31T23:00:00Z
-draft = true
 image = "/uploads/swieradow_052-1.jpeg"
 summary = ""
 tags = []
