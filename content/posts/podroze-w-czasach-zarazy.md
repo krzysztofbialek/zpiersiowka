@@ -36,7 +36,17 @@ Listopad. Druga fala pandemii. Możliwości podróżowania już znacznie więcej
 
 Tym razem Teneryfa. Mimo, że Lanzarote oferuje piękniejsze plaże, to jednak do Teneryfy mamy sentyment. I to był strzał w dziesiątkę. Puerto de la Cruz, północna część wyspy. Hotel, całkiem przypadkowo, ale jakże szczęśliwie, nieprzyjazny dzieciom. Gości mało, większość starszych, cisza, spokój, leżak, błogość. Słońce, winko, pyszne jedzenie - przepis na raj. Miasteczko, w którym mieszkaliśmy bardzo, przyjemne, urokliwe. Choć spacerowanie po nim i wyprawy nad morze były męczące, bo żeby wrócić do hotelu trzeba było wspiąć się pod spore wzniesienie. Sprawdzona i lubiana szkoła nurkowa sprawiła, że wypożyczyliśmy samochód i śmigaliśmy często z północy na południe wyspy. Playa de la Tejita, Los Abrigos i Montana Roja zawsze miło się kojarzą, więc prawie połowę pobytu tam spędziliśmy, wracając jedynie na nocleg na północ. Tydzień to bardzo mało, żeby nacieszyć się tym miejscem, ale i tak mieliśmy dużo szczęścia, że udało nam się tam dotrzeć. Zwłaszcza, że dwa dni po naszym przylocie Wyspy Kanaryjskie zmieniły strategię działania i wpuszczali jedynie turystów z negatywym wynikiem testu na koronawirusa. A jak to wyglądało pod względem bezpieczeństwa sanitarnego? Na Wyspach Kanaryjskich obowiązywał nakaz noszenia maseczek wszędzie i był on egzekwowany, należało mieć zakryte usta i nos (!). Nakaz nie obowiązywał na plaży i przy stoliku w knajpie. Ale można było mieć pewność, że bez maseczki nie zostanie się obsłużonym przy barze, nawet jeśli bar znajduje się na plaży. Poza tym dezynfekcja wszędzie, pomiar temperatury po przylocie, karty lokalizacyjne czyli pandemiczny standard. Otwarte restauracje (w kontekście jedynie jedzenia na wynos w kraju) wydały nam się niebywałym luksusem.
 
-Foto, foto, foto.
+![](/uploads/20201117_172050.jpeg)
+
+![](/uploads/20201117_161758.jpeg)
+
+![](/uploads/20201117_100909.jpeg)
+
+![](/uploads/20201114_155230.jpeg)
+
+![](/uploads/20201118_183310.jpeg)
+
+![](/uploads/20201113_165452.jpeg)
 
 A po powrocie do kraju zafundowaliśmy sobie miękkie lądowanie i nieco mniej bolesny powrót do szarej i mglistej polskiej rzeczywistości. Wybraliśmy się na kilka dni do Buska Zdroju. Mimo, że sanatoria zamknięte, a większość hoteli działała w ograniczonym zakresie, istniała jednak możliwość skorzystania z wyjazdu sanatoryjnego celem podreperowania stanu zdrowia. A że każdemu z nas coś strzykało, gdzieś łupało, to okazja było niepowtarzalna. I pobyt okazał się bardzo skuteczny. Odkryliśmy również nieznane nam dotąd uroki tego uzdrowiskowego miasteczka, zwłaszcza, ze byliśmy jednymi z nielicznych kuracjuszy.
 
