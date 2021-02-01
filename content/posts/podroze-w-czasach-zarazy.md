@@ -24,9 +24,13 @@ Strach przed wirusem spowodował, że mimo całkiem przyjemnej pogody wypoczywaj
 
 ![](/uploads/kolobrzeg_006.jpeg)
 
-Bałtyk ma swój urok. A urok bez tłumów ludzi, kiczu i tandety jeszcze bardziej urzeka. We wrześniu wybraliśmy się ponownie nad morze, tym razem do Dębek. Większość lokalnych „atrakcji” pozamykana, ale udało nam się zjeść jeszcze pyszną rybę w barze Rybka. Z resztą żywienia radziliśmy sobie we własnym zakresie. Grill przy domku w którym mieszkaliśmy był bardzo przydatny. Swoją drogą miejsce, w którym nocowaliśmy było bardzo przyjemne - cztery domki na dosyć sporej przestrzeni, na odbrzeżach miasteczka, w pobliżu lasu. Kameralnie i bardzo klimatycznie. Szkoda, że mieliśmy do dyspozycji tylko weekend, bo pokonanie tej trasy samochodem to istna męka. Ale i tak było warto.
+Bałtyk ma swój urok. A urok bez tłumów ludzi, kiczu i tandety jeszcze bardziej urzeka. We wrześniu wybraliśmy się ponownie nad morze, tym razem do Dębek. Większość lokalnych „atrakcji” pozamykana, ale udało nam się zjeść jeszcze pyszną rybę w barze Rybka. Z resztą żywienia radziliśmy sobie we własnym zakresie. Grill przy domku w którym mieszkaliśmy był bardzo przydatny. Swoją drogą miejsce, w którym nocowaliśmy było bardzo przyjemne - cztery domki na dosyć sporej przestrzeni, na odbrzeżach miasteczka, w pobliżu lasu. Kameralnie i bardzo klimatycznie. Szkoda, że mieliśmy do dyspozycji tylko weekend, bo pokonanie tej trasy samochodem to istna męka. Ale i tak było warto. 
 
-i tu jakies foto - cos wybierzesz
+![](/uploads/20200920_112056.jpeg)
+
+_A na osłodę tej męki w drodze powrotnej zatrzymaliśmy się na doskonałe jedzenie w zajeździe Pod Kłobukiem!_
+
+![](/uploads/20200920_155020.jpeg)
 
 Listopad. Druga fala pandemii. Możliwości podróżowania już znacznie więcej, ale i strach trochę większy. Ale tęsknota za słońcem i radością z podróżowania większa niż strach. Odwołując się do rozsądku, a trochę i ze względu na wygodę wybraliśmy, jak nigdy, wyjazd zorganizowany, z biurem podróży. Ze względu na ryzyko zdecydowaliśmy, że nie jedziemy nigdzie poza Unię. A gdzie jest słonecznie i cieplutko w listopadzie? Na Kanarkach!
 
