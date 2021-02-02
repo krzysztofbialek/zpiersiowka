@@ -1,4 +1,4 @@
-baseURL: "https://focused-darwin-bbf665.netlify.com"
+baseURL: "zpiersiowka.com"
 languageCode: "pl"
 title: "Z piersiówką przez świat"
 theme: "parsa"
@@ -31,7 +31,7 @@ params:
       - URL: plugins/search/search.js
 menu:
   main:
-    - name: "Home"
+    - name: "Główna"
       URL: ""
       weight: 2
     # - name: "Contact"
